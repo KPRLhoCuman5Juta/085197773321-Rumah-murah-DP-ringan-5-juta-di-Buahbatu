@@ -1,0 +1,2 @@
+# 085197773321-Rumah-murah-DP-ringan-5-juta-di-Buahbatu
+Selain harga yang terjangkau, perumahan di Buahbatu ini juga dilengkapi dengan berbagai fasilitas yang bagus penunjang seperti area hijau, taman bermain, dan akses dekat ke fasilitas umum seperti sekolah, pasar, dan pusat perbelanjaan.   https://rumahsubsididp5jutadekatbuahbatu.wordpress.com/ https://rumahsubsididp5jutadekatbuahbatu5.blogspot.com/
